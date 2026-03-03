@@ -52,5 +52,4 @@
 
 ## 📫 Contact Me
 
-- LinkedIn: (Add your LinkedIn)
-- Email: (Your professional email)
+- Email: (mishra.abhishek1@yahoo.com)
